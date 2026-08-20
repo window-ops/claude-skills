@@ -1,1 +1,1 @@
-Some skills I use to roleplay/debate/understand my own content or challenge myself, and my prompt.
+Some skills I use to roleplay/debate/understand my own content or challenge myself, and my prompt in Claude.
